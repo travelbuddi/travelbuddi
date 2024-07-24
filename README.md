@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @travelbuddi
+- 👀 I’m interested in exploring the world
